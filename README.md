@@ -1,1 +1,2 @@
-# Lynda
+Noir Essence by Lyn is more than a mobile massage therapy service—it's a sanctuary of healing, elegance, and empowerment. The name “Noir Essence” reflects the deep, restorative energy I bring to every session: “Noir” symbolizes strength, mystery, and beauty in its purest form, while “Essence” speaks to the soul of my practice—intentional, nurturing, and deeply personal.
+As a massage therapist, I believe in the power of touch to restore balance, release tension, and reconnect you with your body’s natural rhythm. Whether you're seeking relief, relaxation, or renewal, I bring the spa to you—wherever you are—with grace, professionalism, and care.
